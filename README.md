@@ -1,7 +1,7 @@
 # Calie Donnelly 🌌
 
 Senior UI/UX Designer & Frontend Engineer  
-Fintech · Ethical AI · Cosmic animations
+FinTech · Ethical AI · Cosmic animations
 
 🔗 [caliedonnelly.com](https://caliedonnelly.com) | [Twitter](https://twitter.com/caliedonnelly) | [LinkedIn](https://linkedin.com/in/caliedonnelly)
 
