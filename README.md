@@ -1,4 +1,3 @@
-# caliedonnelly_caliedonnelly
 # Calie Donnelly 🌌
 
 Senior UI/UX Designer & Frontend Engineer  
